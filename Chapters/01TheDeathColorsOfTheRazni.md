@@ -1,4 +1,4 @@
-Chapter One: The Deathcolors of the Razni
+## Chapter One: The Deathcolors of the Razni
 
 The world of Raznia bears many similarities to our own. One might at first notice external differences such as the alien architectural style, or the unfamiliar shapes of road signs, but the core of Razni society agreed with my American upbringing: life, liberty, and land. They exercised the privateness of western Europe, preferring rural villas or the suburbs of medium-sized towns (such as Bar Kez, where I lived with my host-family). There are, however, a few notable metropolitan areas such as Tarneza and Kar Zin that have populations nearly the the size of Chicago. I would say that the Razni are a mite ahead of us technologically, but nothing like the biotech of the Irridise or the space-voyaging Memmeths. My host family drove an electrolytic automobile yet relied on landlines for audio communication.
 

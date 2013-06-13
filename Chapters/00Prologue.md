@@ -1,4 +1,4 @@
-Prologue
+## Prologue
 
 I was twenty-two when I first left our world. College came and went like the hello-goodbye of a romantic fling--leaving me a $120,000 slip of paper for my time, proof that I had read enough books and written enough essays to be marginally knowledgeable about English literature. Graduate school was apparently hard to get into, and the recession had eaten up any decent jobs. Someone asked me later why I left. I told him that I had always wanted to travel.
 
