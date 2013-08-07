@@ -1,4 +1,4 @@
-Memoirs of a Worldshifter
+Memoirs of a Worldskipper
 =======
 by [Kendall Park](http://brokenshard.net)
 
